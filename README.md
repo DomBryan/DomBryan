@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do Dom Bryan 😁
+## Bem-vindo(a) ao perfil do Rickson Bryan 😁
 
  <div>
    <a href="https://github.com/DomBryan">
